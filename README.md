@@ -1,1 +1,7 @@
-# aris-zoleta.github.io
+# Economist 
+
+### Education 
+Ph.D. Economics 
+
+### Industrial Experience
+Analyst @ State Street Bank 
