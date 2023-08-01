@@ -24,4 +24,7 @@ Finance Economics, 2016 -2017
 
 ### Publication
 #### Refereed Journal Articles
+Zoleta, Aris. The Role of Public Investment in Pandemic Recovery.
+_DLSU Business and Economic Review, 32(2)_, January 2023.
+
 #### Refereed Conference Articles
