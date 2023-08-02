@@ -14,4 +14,4 @@
 **Economics Lecturer @ Collegio De San Juan De Letran (_June 2019 - 2020_)**
 - Teach the following subject: Mathematical Economics and Macroeconomics
 
-ff
+
